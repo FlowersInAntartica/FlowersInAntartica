@@ -1,5 +1,7 @@
-![Untitled542_20250319122527](https://github.com/user-attachments/assets/dda3d472-7df2-491f-9a02-c11401bc042f)
-c + h is ok ! 　 　 [yt](https://www.youtube.com/@velvviy)   ᛝ   [ata](https://bittersweetangel.atabook.org/)
-![Untitled541_20250319121103](https://github.com/user-attachments/assets/d2cce803-04f9-4de4-80ab-5517ca9756dd)
-w2i if offtab , dnc !ㅤㅤ![yuri nation](https://komarev.com/ghpvc/?username=velvviy)
-![Untitled542_20250319122725](https://github.com/user-attachments/assets/2c458d72-9839-48aa-a600-42262fe38168)
+![1udrzc](https://github.com/user-attachments/assets/84e9fe6a-5e0b-49bb-acae-0f9534a27a07)
+c + h is highly encouraged ! 　 　 [yt](https://www.youtube.com/@velvviy)   ᛝ   [ata](https://bittersweetangel.atabook.org/)
+
+int w me !! i dont bite ,, ^_^
+![Untitled558_20250328225414](https://github.com/user-attachments/assets/edc510ac-b02b-48d8-ab47-9f1877e8d994)
+w2i if offtab , do not copy and do not cover .ㅤㅤ![yuri nation](https://komarev.com/ghpvc/?username=velvviy)
+![1udrzc](https://github.com/user-attachments/assets/44718709-8522-4399-a175-6456f9bda6f5)
