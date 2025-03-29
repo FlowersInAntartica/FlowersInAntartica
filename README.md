@@ -1,5 +1,5 @@
 ![1udrzc](https://github.com/user-attachments/assets/84e9fe6a-5e0b-49bb-acae-0f9534a27a07)
-c + h is highly encouraged ! 　 　 [yt](https://www.youtube.com/@velvviy)   ᛝ   [ata](https://bittersweetangel.atabook.org/)
+c+h is highly encouraged ! 　 　 [yt](https://www.youtube.com/@velvviy)   ᛝ   [ata](https://bittersweetangel.atabook.org/)
 
 int w me !! i dont bite ,, ^_^
 ![Untitled558_20250328225414](https://github.com/user-attachments/assets/edc510ac-b02b-48d8-ab47-9f1877e8d994)
